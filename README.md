@@ -7,4 +7,4 @@
 . . . . ♥︎ . . . . 
 <img width="99" height="56" alt="1000012296" src="https://github.com/user-attachments/assets/8739007a-382a-4507-86a7-2e5852ab21e9" /> 
 
- " it was love too ! " 
+ 
