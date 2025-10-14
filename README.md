@@ -7,5 +7,5 @@
 . . . . ♥︎ . . . . 
 <img width="99" height="56" alt="1000012296" src="https://github.com/user-attachments/assets/8739007a-382a-4507-86a7-2e5852ab21e9" /> 
 
- <img width="3521" height="3484" alt="1000014926" src="https://github.com/user-attachments/assets/1fa6ce58-c870-4763-a8d1-1d16d1b5fa76" />
+ 
 
